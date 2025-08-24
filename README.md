@@ -1,3 +1,3 @@
 # Secret-Hacks
-My secret methodology on how to hack!!
+Learn my secret methods. Not disclosed to the public, until now!
 https://linkly.link/2DqBy
